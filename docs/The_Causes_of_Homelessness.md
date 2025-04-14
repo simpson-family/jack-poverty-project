@@ -1,0 +1,3 @@
+# The Causes of Homelessness
+
+There are also a large number of reasons why this is happening. The most common reason why people are evicted is because of an immediate and catastrophic change. That can happen because of death, loss of relationship and more. You can also be evicted because of abuse, did you know 90% of homeless women say they were abused. Lastly, it can happen because of generational poverty, which is when poverty is passed down from generation to generation. 45% of people who spend half or more of their childhood in poverty are poor by 35. If they spend less than half of their childhood, they only have an 8% chance. And those are just some of the reasons why people can be evicted.
